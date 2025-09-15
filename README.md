@@ -7,7 +7,8 @@ I take pride in always giving my best on every project, approaching problems wit
 
 With strong collaboration and communication skills, I work well in diverse teams and value knowledge sharing.
 
+You can also find some of my school projects here on my GitHub, showcasing my skills and the work I’ve done during my studies.
+
 🌍 Languages: Dutch · Arabic · English
 
 🚀 Always learning, always building, always growing.
-
